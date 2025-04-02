@@ -1,2 +1,2 @@
-# LasyapriyaVavilalaProjects
+# Lasyapriya Vavilala Projects
 Project Portfolio
